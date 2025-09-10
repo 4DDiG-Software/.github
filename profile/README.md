@@ -23,7 +23,7 @@ Whether you are using **4ddig mac** or **4ddig windows**, the software delivers 
 Professionals also appreciate **4DDiG’s versatile compatibility** with various devices, ensuring smooth integration into multi-platform workflows. For those evaluating options, **tenorshare 4ddig reviews** highlight its ease of use, efficient performance, and reliability for everyday file management tasks.  
 
 <p align="center">
-  <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ8hMAr-pi_uK3zGNSWfKDNsMSoYjMi0oQr9g&s" alt="Tenorshare 4DDiG Interface" width="720"/>
+  <img src="https://4ddig.tenorshare.com/images/v2/product/free-data-recovery2/banner.png" alt="Tenorshare 4DDiG Interface" width="720"/>
 </p>
 
 
